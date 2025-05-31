@@ -113,7 +113,7 @@ This will launch the app in your default web browser.
 
 **Muhammad Qasim**
 Connect with me on [LinkedIn](https://www.linkedin.com/in/muhammad-qasim-a99057265?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
-Email: `your_email@example.com`
+Email: `mqasim111786111@gmaiol.com`
 
 ---
 
